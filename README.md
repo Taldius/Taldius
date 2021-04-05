@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Taldius
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning how to make GOOD games
+- 💞️ I’m looking to collaborate on games
+- 📫 How to reach me @taldiuz on twitter
